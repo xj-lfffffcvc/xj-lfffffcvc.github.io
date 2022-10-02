@@ -1,3 +1,4 @@
 # xj-lfffffcvc.github.io
 fffffcvc Web Page
-awa
+
+就是一个普普通通的网站 (大嘘
